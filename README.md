@@ -10,7 +10,7 @@ Vive
 
 ### Time Spent ###
 
-14 Hours
+6 Hours
 
 ### One thing I liked ###
 
